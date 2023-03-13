@@ -1,2 +1,2 @@
-# SC---Assignment-Lab-1
+# SC---Assignment-Lab
 2602178041 - Mawar Maharani
